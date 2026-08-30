@@ -1,0 +1,1 @@
+Blog post for SA Job Alerts — Daily curated job alerts for South Africa
